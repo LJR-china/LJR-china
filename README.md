@@ -1,4 +1,4 @@
-## Hi there 👋
+## I love game
 
 <!--
 **LJR-china/LJR-china** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
